@@ -1,2 +1,3 @@
 # Hack-surviv free cheats
-# ez
+# instructions
+# Surviv.io console COPY PASTE on mac cmd option "i" Windows select 
