@@ -1,1 +1,2 @@
-# Hack-surviv
+# Hack-surviv free cheats
+# ez
